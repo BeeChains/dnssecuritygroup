@@ -17,5 +17,5 @@ These are decentralized dns blockchain Top Level Domains!
 
 - [CYBERINTELLIGENCEGROUP](http://masterthyself.cyberintelligencegroup/)
 
-https://coinswitch.co/?ref=ZTELTB86NM
+[Coin Switch](https://coinswitch.co/?ref=ZTELTB86NM) or 
 
